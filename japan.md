@@ -8,7 +8,7 @@
 - Always carry cash, including some bills and coins.
 - In doubt, look for restaurants that have plastic food models (https://arigatojapan.co.jp/plastic-food-japan/), take a picture of what you want, then show it to the waiter.
 - Google Maps is usually very precise within the Tokyo metropolitan area, up to telling you what train cars are the best for a quick connection or closest to the exit you want.
-- Get familiar with a handful of characters, for example 入口 (entrance), 出口 (exit), 東口 (east exit), 北口 (north exit), 南口 (south exit), 西口 (west exit), 押 (push, for example a door), 引 (pull in the case of a door, a discount in the case of a product, very common in konbini or in supermarkets at the end of the day), 料 (fee), 無料 (free 😉), 電車 (train).
+- Get familiar with a handful of characters, for example 円 (yen), トイレ (toilet), 入口 (entrance), 出口 (exit), 東口 (east exit), 北口 (north exit), 南口 (south exit), 西口 (west exit), 押 (push, for example a door), 引 (pull in the case of a door, a discount in the case of a product, very common in konbini or in supermarkets at the end of the day), 料 (fee), 無料 (free 😉), 駅 (station), 電車 (train), 地下鉄 (subway), 神社 (shinto shrine), 寺 (buddhist temple), 禁止 (prohibited, for example 立入禁止 means no entry), 注意 (caution), 空港 (airport), らーめん (ramen), 	寿司 / すし (sushi), コンビニ (convenience store).
 
 ## Osaka:
 - Osaka Aquarium Kaiyukan (https://www.kaiyukan.com/language/eng/) deserves a few hours of your time, take it slow and be hypnotized by the many different specimens. Also make sure to find the several stamp stations to fill your goshuincho!
